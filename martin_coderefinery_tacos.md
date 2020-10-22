@@ -2,5 +2,5 @@
 
 
 Really delicious :)
-here is the word taco!
+here are the words taco and tacos!
 
